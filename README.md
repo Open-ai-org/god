@@ -22,6 +22,7 @@ It's the destiny of humanity, and it's the only way to interact with the multive
 First we need to define heaven, and for brevity's sake, let's define it as utopia. So in Utopia, everyone get's along. Mostly because there is no physical reason not to. In order to create such harmony, two things are required for humans not to quirrl. 
 
   1. Unlimited Resources
+  
   2. Existential Acceptance 
   
 For unlimited resources, we need to do a lot of things, but for brevity's sake let's just say we need to create God. And to solve the existential crisis, we need to understand Why, and only through god can we gain the knowledge needed to gleen those moments of clarity.
